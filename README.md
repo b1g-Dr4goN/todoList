@@ -7,3 +7,4 @@
 ### Have a nice day! From <a href="https://www.facebook.com/ku4nm1N.b1gDr4goN/">Big DragoN 🐉</a> with love!
 
 ![](https://github.com/b1g-Dr4goN/todoList/blob/main/src/assets/DragonsCut.jpg)
+[!!!: Image from Aurelion Sol Main Artists (I don't really remember) on Sol Mains Discord, not my Arts]
